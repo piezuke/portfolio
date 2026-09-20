@@ -1,2 +1,2 @@
 # Blog site
-gonna make this myself
+gonna make this myself rahhhhhh
